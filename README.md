@@ -1,3 +1,6 @@
+<div align="center">
+<img width="1200" height="675" alt="Bley Abogados - Mapa de conocimiento sanitario" src="https://github.com/bleyabogados/guia-documentacion-clinica-pacientes/blob/main/img/guia-documentacion-clinica-pacientes.JPG" />
+</div>
 # Mapa de Conocimiento Jurídico: Derecho Sanitario
 ## Un Recurso de Bley Abogados
 
