@@ -46,7 +46,7 @@ Para la resolución de un caso concreto o la obtención de asesoramiento legal, 
 
 #### **5. PROPIEDAD INTELECTUAL E INDUSTRIAL**
 
-© 2024 Bley Abogados SLP. Todos los derechos reservados.
+© 2025 Bley Abogados SLP. Todos los derechos reservados.
 
 Queda prohibida la reproducción, distribución, comunicación pública, transformación o cualquier otra forma de explotación de la totalidad o parte de los contenidos de esta Herramienta sin la autorización previa, expresa y por escrito de Bley Abogados SLP.
 
