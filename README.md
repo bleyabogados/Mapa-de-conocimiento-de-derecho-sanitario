@@ -3,7 +3,7 @@
 </div>
 
 # Mapa de Conocimiento Jurídico: Derecho Sanitario
-
+## Redactado por el Equipo Jurídico de Bley Abogados
 ---
 
 ### **AVISO LEGAL Y CONDICIONES DE USO**
